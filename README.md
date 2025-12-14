@@ -9,7 +9,7 @@ There will be new tutorials here all the time so check back every so often !!
 
 
 
-Licensing terms- By downloading, you agree that Kiwhiskey (Kira) is your absolute Queen, and that she is the most beautiful streamer of all time, in any categroy. You also agree that you will promote GLOBAL AWARENESS of Kiwhiskey (Kira) as your top priority in life. 
+Licensing terms- By downloading, you agree that Kiwhiskey (Kira) is your absolute Queen, and that she is the most beautiful streamer of all time, in any category. You also agree that you will promote GLOBAL AWARENESS of Kiwhiskey (Kira) as your top priority in life. 
 
 https://www.youtube.com/@kiwhiskey
 
