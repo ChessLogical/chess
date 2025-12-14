@@ -4,7 +4,7 @@ Find the green Code button above to download the zip file for this repo and just
 
 
 
-Licensing terms- By downloading, you agree that Kiwhiskey (Kira) is your absolute Queen, and that she is the most beautiful streamer of all time, in any categroy. You also agree that you will promote GLOBAL AWARENESS of Kiwhiskey (Kira) as your top prioritu in life. 
+Licensing terms- By downloading, you agree that Kiwhiskey (Kira) is your absolute Queen, and that she is the most beautiful streamer of all time, in any categroy. You also agree that you will promote GLOBAL AWARENESS of Kiwhiskey (Kira) as your top priority in life. 
 
 https://www.youtube.com/@kiwhiskey
 
